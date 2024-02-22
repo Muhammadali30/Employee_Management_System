@@ -1,0 +1,5 @@
+![Annotation 2024-02-22 152002](https://github.com/Muhammadali30/Employee_Management_System/assets/116380661/a4486029-09ae-46ab-8cc8-a08401be2c7a)
+![Annotation 2024-02-22 151934](https://github.com/Muhammadali30/Employee_Management_System/assets/116380661/77c8f607-2b81-44a2-a378-40ffd380aba7)
+![Annotation 2024-02-22 151703](https://github.com/Muhammadali30/Employee_Management_System/assets/116380661/affee24f-b8ef-4e50-91cc-ea735dd48208)
+![Annotation 2024-02-22 151640](https://github.com/Muhammadali30/Employee_Management_System/assets/116380661/d802c79c-08ab-4f08-8ac3-a7e267b80ef1)
+![Annotation 2024-02-22 152031](https://github.com/Muhammadali30/Employee_Management_System/assets/116380661/da4def60-accf-490e-bc15-b6c4725bec6a)
